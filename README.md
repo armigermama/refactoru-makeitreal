@@ -1,1 +1,1 @@
-paired with Matt M and David.
+Paired with Matt M and David.
